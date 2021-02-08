@@ -1,3 +1,3 @@
 # Chlorine-Drip
 
-I swim on Masters team.
+I swim on a Masters team.
